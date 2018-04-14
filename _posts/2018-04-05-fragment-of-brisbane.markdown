@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "A Fragment of Brisbane"
+title:  "Fragment of Brisbane"
 date:   2018-04-05
 ---
 

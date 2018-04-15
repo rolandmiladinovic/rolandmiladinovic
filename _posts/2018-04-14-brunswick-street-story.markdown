@@ -39,3 +39,7 @@ Returning, we both start painting again and she is telling me all about this guy
 Last time I saw Sarah she was sitting on a brick ledge amongst the other drug addicts and rough sleepers, eating a free breakfast put on by the local Christian college kids. With a messy blond wig on backwards she fixes her own silly plats, chatting and laughing away amongst herselves. A beacon of light amongst the hung heads and hopelessness. Her presence turns all these down and outers into gentleman as she makes the rounds talking to each one in turn.
 
 It’s been two weeks now since she last rung my doorbell, and with the dawn of the day I go out walking Brunswick St alone. There will be a thousand people crossing paths along this street today, But at this hour it all belongs to one man. Cool wind blowing, heralding storms. There sits Ryan apon concrete pillar, shirtless, cargo pants, hiking boots, ropy muscles, straight iron bar spine, lion’s mane bending to the wind, thousand mile stare. Zen smoking dumped cigarette butt elbow up and pinky out, deep controlled breath, as though ceremoniously savouring a fine oolong.
+
+[click here to suggest edits](https://docs.google.com/document/d/1V4G_7AycaUJjOztVHdTzpn1x2SISGQctp6iFOcUf3DU/edit?usp=sharing)
+
+

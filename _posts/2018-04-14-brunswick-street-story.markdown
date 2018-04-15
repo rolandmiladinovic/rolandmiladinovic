@@ -14,9 +14,9 @@ Seeing the tubes of paint, watercolours, charcoals, tools, instruments, candles,
 
 
 
-I want to talk with her, to reach out, to know anything about her, learn from her. But it seems to me impossible to find an appropriate question. And I become shocked by a realisation of the ridiculousness of asking questions about the future or past of someone so fettered to the moment. I’m also in the wrong position, talking to her from a distance, perched up on a chair, observing her play, smoking cigarettes. To communicate with her I must get down on the floor, on hands and knees with the paint.
+I want to talk with her, to reach out, to know anything about her, learn from her. But it seems to me impossible to find an appropriate question. And I become shocked by a realisation of the ridiculousness of asking questions about the future or past of someone so fettered to the moment. I’m also in the wrong position, talking to her from a distance as a spectator, perched up on a chair smoking cigarettes. To communicate with her I must down on the stage floor, on hands and knees with paintbrush in hand.
 
-Staring at a blank piece paper I’m unable to begin, holding paintbrush loaded with black over rectangle of white. Waiting for an image to arrive, a face to appear, anything. I look over to see what Sarah is doing and she painting with the tube of silver acrylic itself in a frenzy of fast circles. I ask her for some painting advice and she tells me to paint with both ends of the brush, and we start talking in a silly word play of rhyme, alliteration, puns, and laughter, communicating between the lines.
+Staring at a blank piece paper I’m unable to begin, holding paintbrush loaded with black over rectangle of white. Waiting for an image to arrive, a face to appear, anything. I look over to see what Sarah is doing and she painting with the tube of silver acrylic itself in a frenzy of fast circles. I ask her for some painting advice and she tells me to paint with both ends of the brush, and we start talking in a silly word play of rhyme, alliteration, puns, and laughter. Communicating telepathically between the nonsense of all words.
 
 Ajax is painting the words, “PRESCHOOL” and I decide it’s an entrance plaque to the studio. Signifying Zarathustra’s fourth metamorphosis of the soul … or a regression to idiocy?
 

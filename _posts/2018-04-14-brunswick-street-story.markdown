@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brunswick Street Story"
-date:   2018-04-05
+date:   2018-04-14
 ---
 
 Out walking Brunswick Street again one evening, along with Ajax, taking our place amongst the freaks, homeless, lunatics, criminals, prostitutes, meth addicts, buskers, cripples, drag queens, bogans, strippers, aboriginals, cops, and backpackers. We enter a late night hipster cafe and order coffee as a pretext for charging our phones because there’s no electricity at home. When I notice on the walls are hanging large canvases by this woman erotic artist, Zazie. Great pop-art messes of lurid colour dripping down spiral nippled breasts. The muse to one of my first watercolours of which I sent her—a simple female nude outline in her style over a mess of colour. She liked my bright colours and told me I’d get better with time. But became cold and disagreeable once I told her that I’ve given up all ambitions for working and careers, and shared a fantasy where we’d never work again and just paint the days away in some run down squat as we descend further into poverty and madness. No, she must have money for travel and for seeing here favourite bands, and for all the comforts a woman requires. Later she confessed to having already attempted exactly this, last year, the worst year of her life….

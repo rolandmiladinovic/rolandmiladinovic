@@ -13,7 +13,7 @@ behind brushes\\
 again!\\
 beckons for chasing\\
 like lightening she flashes her eyes from behind branches\\
-with winking glances\\
+wicked glances\\
 my heart stood still in delight\\
 a light tap of her foot on the floor of the forest\\
 ankle bells calling\\
@@ -24,7 +24,7 @@ I love her\\
 but as I get near my love turns to fear\\
 with leaps I dare nearer\\
 but fall down in bushes\\
-her hair down beside me\\
+Her hair down beside me\\
 In my ear there are whispers\\
 but where have you gone?\\
 come back\\
@@ -32,25 +32,27 @@ When I feel on my collarbone\\
 blood\\
 a spider’s bite that itches
 
-I pulled myself up from the bushes still holding the little bite on my collar and walked out into a open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was grim and apocalyptic as the moon shone down. I called out a greeting and was welcomed like a brother.
+I pulled myself up from the bushes still holding the little bite on my collar and walked out into a open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down. I called out a greeting and was welcomed like a brother.
 
-The One, walked about, pacing, telling us of premonitions of the end of the world. We discuss mankind's destiny as if we three megalomaniacs alone had the power to save the world or destroy it. But the other doesn’t believe in the end of the world. Humankind will always find away; a miracle at the last moment. The seed of life will always rise from the ashers.
+He walked about with nervous energy, stout, regal, pacing, telling us of premonitions of the end and the seven most likely way that humanity will be annalited. We discuss mankind's destiny as if we three megalomaniacs alone had the power to save or destroy it the world. But the other doesn’t believe in the end of the world. Humankind will always find away, a miracle at the last moment. A seed of life will always rise from the ashers.
 
-The One picked up a tree branch for a stalf and drew out a circle on the grass floor between the three friends. Looked up with rueful suspicion as if offering a challenge and said in cryptic lines: “Don’t stab me in the heart,” “the serpent from the garden of eden believes in all its innocence, hahaha” then began a to soliloquise in a commanding voice:
+He picked up a tree branch for a stalf and drew out a circle on the grass floor between the three friends. Looked up with rueful suspicion in his eye as if offering a challenge and said in cryptic lines: “Don’t stab me in the heart when we are sparing,” “the serpent of Eden believes in all its innocence.”
+
+misunderstandings abound and we are starting to see nothing but ourselves in the others words as we interperate the signs. We are talking past each other and every misunderstanding is even profound. and some sort of occult language started to formulate and we could communicate in what was almost telepathy. We were talking nonsence but we were communicating deeply. 
 
 Information is being collected
 
 “Here is the eternal ring of return (motioning with his hand around the imaginary circle), all things must return eternally. This life that you now know you will live innumerable times, over and over. We three are eternal travelers, to be marked and condemned for perpetual reincarnate into our own selves, over and over. All who enter this circle will be bound and married with this eternal ring and seal. And return to this exact same place on this exact same night under this very same moon, talking of eternity.”
 
-Well I can’t think of anything worse.
+I accept my fate.
 
 If you can pass this judgment and test you will gain inconceivable power and command of life. but if you fail to bear it, it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent in order to redeem yourselves? Step in if you dare!
 
-I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured into my open acid mind speaking into me so bell-ringingly clear so that the memory is engraved there like a searing tattoo.
+I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured directly into my open acid mind, speaking into me so bell-ringingly clear so that the memory is engraved there like a searing tattoo.
 
-In my eye, the circle in the earth began to glow, and within I saw a fractal green grass scaled luminous ouroboros—that ancient serpent devouring its own tail and renewing life for eternity.
+In my eye, the circle in the earth began to glow, and within I saw a fractal green grass scaled luminous ouroboros—that ancient serpent eternally devouring its own tail.
 
-The One looked at his hands.
+He looked at his hands.
 
 I feel a strange energy\\
 my mind is alight\\
@@ -60,15 +62,22 @@ To share in all its joy and pain\\
 To play in the chaos\\
 Death no longer shakes me\\
 
-Clouds gather all around .The moon conceals its light. My eyes lose focus. Red light sparks and flashes about my head. A cold shadow moves across my heart. A electricity valts down from above—it grips me.
+Clouds gather around .The moon conceals its light. My eyes lose focus. Red light sparks and flashes about my head. A cold shadow moves across my heart. A force valts down from above—it grips me.
 
-The One continues:
+He continues:
 
-I feel your presence around me great spirit, you have found me!\\
+I feel your presence around me great spirit\\
+you have found me!\\
 Reveal yourself!\\
 It tears my heart, I bleed!\\
 I reach out to you\\
 I have no fear!\\
 If it should cost my life. Appear!
 
-The One fell to the ground. “What is this vision!” ... “Every pain and suffering and torment repeated again and again for all time—tortured children forever crying out. Noooo!” Pulling at the grass in despair ... “But knowing, and knowing that you know.” ... “A laugh can redeem it all!” He says with unconvincing hope as he attempts to call up a divine laughter—but in vain. He holds the sign of a handgun to the side of his head and faces us on his knees. And I guess it’s our role to talk him down and give him reasons to live, but who can give another man a reasons not to return to eternal bliss, of nothing, of childhood, of death, of rebirth, … 
+He fell to the ground. “What is this vision!” ... “Every pain and suffering and torment repeated again and again for all time—tortured children forever crying out. Noooo!” Pulling at the grass in despair ... “But knowing, and knowing that you know.” ... “A laugh can redeem it all!” He says with unconvincing hope as he attempts to call up a divine laughter—but in vain. He holds the sign of a handgun to the side of his head and faces us on his knees. And I guess it’s our role to talk him down and give him reasons to live, but who can give another man a reasons not to return to eternal bliss. 
+
+I sit down on the grass beside him, his eyes full of tears. But something monstrous is smoldering with as I realise that I’ve entered the circle, and now that image of the burning serpent at my center has turned into a figure of fiery red. I feel amazing, powerful—I feel immortal! Brendan is week and fragile and is crying.
+
+Like an undertaker bringing back a dead man from the the underworld we tow him across the bridge from the botanical gardens into Southbank. I lead with folded arms protecting myself from the cold. With the solemn slow gate of a coffin bearer.
+
+We make our way to southbank into the light where other people walk around and talk. Saturday night is happening all around us. Lights, and talking, and families. And young children kicking along on scooters, people eating in outdoor restaurants. We walk aloung a path under an iron arch covered with climbing flowers.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "New Zealand Fantasy"
+title:  "Dreaming in New Zealand"
 Date: 2018-04-14
 ---
 

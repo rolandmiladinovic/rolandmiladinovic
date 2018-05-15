@@ -4,33 +4,33 @@ title:  "Summoning Eternal Return"
 date:   2018-05-14
 ---
 
-running\\
-through gardens of forest\\
-ahead in the distance\\
-a fleeting white figure\\
-a dress disappearing\\
-behind brushes\\
-again!\\
-beckons for chasing\\
-like lightening she flashes her eyes from behind branches\\
-wicked glances\\
-my heart stood\\
-a light tap of her foot on the floor of the forest\\
-ankle bells calling\\
-chasing, again chasing\\
-I leap o’er rocks\\
-wishing for dancing\\
+Running\\
+Through gardens of forest\\
+When ahead in the distance\\
+A fleeting white figure\\
+A dress disappearing\\
+Behind brushes\\
+Again!\\
+Beckons for chasing\\
+Like lightening she flashed her eyes from behind branches\\
+Wicked glances\\
+My heart stood still\\
+A light tap of her foot on the floor of the forest\\
+Ankle bells calling\\
+Chasing, again chasing\\
+I leapt o’er rocks\\
+Wishing for dancing\\
 I love her\\
-but as I draw near my love turns to fear\\
-with leaps I dare catch her\\
-but fall down in bushes\\
+But as I drew near my love turned to fear\\
+With leaps I dared catch her\\
+But fell down in bushes\\
 Her hair down beside me\\
-In my ear there are whispers\\
-but where has she gone?\\
-come back\\
-When I feel on my collarbone\\
-blood\\
-a spider’s bite that itches
+In my ear there were whispers\\
+But where had she gone?\\
+“Come back!”\\ 
+I felt on my collarbone\\
+Blood\\
+A spider’s bite that itching
 
 I pulled myself up from the bushes still holding the little bite on my collar and walked out into an open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
 

@@ -20,7 +20,7 @@ Ankle bells calling\\
 Chasing, again chasing\\
 I leapt o’er rocks\\
 Wishing for dancing\\
-I love her\\
+I loved her\\
 But as I drew near my love turned to fear\\
 With leaps I dared catch her\\
 But fell down in bushes\\
@@ -32,11 +32,11 @@ I felt on my collarbone\\
 Blood\\
 A spider’s bite itching
 
-I pulled myself up from the bushes still holding the little bite on my collar and walked out into an open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
+I pulled myself up from the bushes still holding the little bite on my collar and walked onto an open clearing of freshly cut grass where I found two friends loitering around a park table. They were animated with talk and laughter, but the night was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
 
 He walked about with nervous energy, stout, regal, pacing, telling us his premonitions of the end and of the most likely way that humanity will be annalited. We discuss mankind's destiny as if we three megalomaniacs alone had the power to save or destroy it the world. But the other doesn’t believe in the end of the world. Humankind will always find away, a miracle at the last moment. A seed of life will always rise from the ashers.
 
-Our talking became abstract. Trading random words and weighing their effects. “Doom” hits me square in the stomach. I read my own meanings into random sentences of words and pary back with a few of my favourite words. Complete nonsense, but somehow we believed we were communicating profoundly, even telepathically.
+Our talking became abstract. Trading random words and weighing their effects. “Doom” hit me square in the stomach. I read my own meanings into random sentences of words and pary back with a few of my favourite words. Complete nonsense, but somehow we believed we were communicating profoundly, even telepathically.
 
 He appeared hurt and picked up a tree branch for a stalf and drew out a circle on the grass floor between the three friends. Looked up with mocking suspicion in his eye as if offering a challenge and said in cryptic lines: “Don’t stab me in the heart when we are sparing, you know the serpent of Eden believes in all its innocence.”
 
@@ -46,18 +46,17 @@ He: “Behold, the ring of eternal return (motioning with his hand around the im
 
 Information is being collected by machines, collecting the fragments needed for simulation of the next inexorable return.
 
-I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured directly into my open acid mind, speaking into me so bell-ringingly clear so that the memory is engraved like a searing tattoo.
+I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured directly into my open acid mind, speaking into me so bell-ringingly clear so that I can never forget it.
 
 In my eye, the circle in the earth began to glow, and within I saw a fractal green grass scaled luminous ouroboros—that ancient serpent eternally devouring its own tail.
 
-He looked at his hands:
+He looked down at his hands with eyes blazing:
 
 I feel a strange energy\\
-my mind is alight\\
-a maelstrom of thought assails me\\
+My mind is alight\\
+A maelstrom of thought assails me\\
 I dare to face the world and act\\
 To share in all its joy and pain\\
-To play in chaos\\
 Death no longer shakes me\\
 
 Clouds gather around; The moon conceals its light; My eyes lose focus; Red light sparks and flashes about my head; A cold shadow moves across my heart; A force valts down from above—it grips me.

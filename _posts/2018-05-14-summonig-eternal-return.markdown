@@ -42,27 +42,27 @@ He appeared hurt and picked up a tree branch for a stalf and drew out a circle o
 
 He: “Behold, the ring of eternal return (motioning with his hand around the imaginary circle), all things must return eternally. This life as you know it will be lived innumerable times over. We three are eternal travelers, marked and condemned for perpetual reoccurrence. All who enter this circle will be bound and married with this eternal ring and seal. To return to this place, on this very same night, under this moon, talking of eternity.”
 
-“If you can pass this judgment and test you will gain inconceivable power and command of life. but if you fail to bear it, it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent in order to redeem yourselves? Step in if you dare!”
+“If you can pass this judgment and test you will gain inconceivable power and command. but if you fail to bear it---it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent in order to redeem yourselves? Step in if you dare!”
 
-Information is being collected by machines, collecting the fragments needed for simulation of the next return.
+Information is being collected by machines, collecting the fragments needed for simulation of the next inexorable return.
 
-I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured directly into my open acid mind, speaking into me so bell-ringingly clear so that the memory is engraved there like a searing tattoo.
+I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured directly into my open acid mind, speaking into me so bell-ringingly clear so that the memory is engraved like a searing tattoo.
 
 In my eye, the circle in the earth began to glow, and within I saw a fractal green grass scaled luminous ouroboros—that ancient serpent eternally devouring its own tail.
 
-He looked at his hands.
+He looked at his hands:
 
 I feel a strange energy\\
 my mind is alight\\
 a maelstrom of thought assails me\\
 I dare to face the world and act\\
 To share in all its joy and pain\\
-To play in the chaos\\
+To play in chaos\\
 Death no longer shakes me\\
 
-Clouds gather around .The moon conceals its light. My eyes lose focus. Red light sparks and flashes about my head. A cold shadow moves across my heart. A force valts down from above—it grips me.
+Clouds gather around; The moon conceals its light; My eyes lose focus; Red light sparks and flashes about my head; A cold shadow moves across my heart; A force valts down from above—it grips me.
 
-He continues:
+He:
 
 I feel your presence around me great spirit\\
 you have found me!\\
@@ -73,5 +73,3 @@ I have no fear!\\
 If it should cost my life. Appear!
 
 He fell to the ground. “What is this vision!” ... “Every pain and suffering and torment repeated again and again for all time—tortured children forever crying out. Noooo!” Pulling at the grass in despair ... “But knowing, and knowing that you know.” ... “A laugh can redeem it all!” He says with unconvincing hope as he attempts to call up a divine laughter—but in vain. He holds the sign of a handgun to the side of his head and faces us on his knees. And I guess it’s our role to talk him down and give him reasons to live, but who can give another man a reasons not to return to eternal bliss. 
-
-I sit down on the grass beside him, his eyes full of tears. But something monstrous is smoldering with as I realise that I’ve entered the circle, and now that image of the burning serpent at my center has turned into a figure of fiery red. I feel amazing, powerful—I feel immortal! He, fragile, crying.

@@ -26,27 +26,25 @@ with leaps I dare catch her\\
 but fall down in bushes\\
 Her hair down beside me\\
 In my ear there are whispers\\
-but where have she gone?\\
+but where has she gone?\\
 come back\\
 When I feel on my collarbone\\
 blood\\
 a spider’s bite that itches
 
-I pulled myself up from the bushes still holding the little bite on my collar and walked out into a open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
+I pulled myself up from the bushes still holding the little bite on my collar and walked out into an open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
 
 He walked about with nervous energy, stout, regal, pacing, telling us his premonitions of the end and of the most likely way that humanity will be annalited. We discuss mankind's destiny as if we three megalomaniacs alone had the power to save or destroy it the world. But the other doesn’t believe in the end of the world. Humankind will always find away, a miracle at the last moment. A seed of life will always rise from the ashers.
 
-As the LSD soaked our minds our talking became abstract. The sounds of words, trading random words, feeling their effects. “Doom” hits me square in the stomach. I read my own meanings into random sentences of words and pary back. We were talking nonsense but somehow we believed we were communicating profoundly even telepathically.
+Our talking became abstract. Trading random words and weighing their effects. “Doom” hits me square in the stomach. I read my own meanings into random sentences of words and pary back with a few of my favourite words. Complete nonsense, but somehow we believed we were communicating profoundly, even telepathically.
 
-He picked up a tree branch for a stalf and drew out a circle on the grass floor between the three friends. Looked up with rueful suspicion in his eye as if offering a challenge and said in cryptic lines: “Don’t stab me in the heart when we are sparing,” “the serpent of Eden believes in all its innocence.”
+He appeared hurt and picked up a tree branch for a stalf and drew out a circle on the grass floor between the three friends. Looked up with mocking suspicion in his eye as if offering a challenge and said in cryptic lines: “Don’t stab me in the heart when we are sparing, you know the serpent of Eden believes in all its innocence.”
 
-“Here is the eternal ring of return (motioning with his hand around the imaginary circle), all things must return eternally. This life that you now know you will live innumerable times, over and over. We three are eternal travelers, to be marked and condemned for perpetual reincarnate into our own selves, over and over. All who enter this circle will be bound and married with this eternal ring and seal. And return to this exact same place on this exact same night under this very same moon, talking of eternity.”
+He: “Behold, the ring of eternal return (motioning with his hand around the imaginary circle), all things must return eternally. This life as you know it will be lived innumerable times over. We three are eternal travelers, marked and condemned for perpetual reoccurrence. All who enter this circle will be bound and married with this eternal ring and seal. To return to this place, on this very same night, under this moon, talking of eternity.”
 
-I accept my fate.
+“If you can pass this judgment and test you will gain inconceivable power and command of life. but if you fail to bear it, it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent in order to redeem yourselves? Step in if you dare!”
 
-If you can pass this judgment and test you will gain inconceivable power and command of life. but if you fail to bear it, it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent in order to redeem yourselves? Step in if you dare!
-
-Information is being collected by machines, collecting the fragments needed for a simulation for the next return.
+Information is being collected by machines, collecting the fragments needed for simulation of the next return.
 
 I took this child’s game of play acting so lightly at the time, as nothing but a comedy of absurdity. But this spontaneous symbolic acting and theatrics poured directly into my open acid mind, speaking into me so bell-ringingly clear so that the memory is engraved there like a searing tattoo.
 

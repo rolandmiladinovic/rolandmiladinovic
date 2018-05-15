@@ -27,10 +27,10 @@ But fell down in bushes\\
 Her hair down beside me\\
 In my ear there were whispers\\
 But where had she gone?\\
-“Come back!”\\ 
+“Come back!”\\
 I felt on my collarbone\\
 Blood\\
-A spider’s bite that itching
+A spider’s bite itching
 
 I pulled myself up from the bushes still holding the little bite on my collar and walked out into an open clearing of freshly cut grass where I found two friends sitting at a park bench. They were animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
 

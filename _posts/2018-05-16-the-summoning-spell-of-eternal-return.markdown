@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Summoning Eternal Return"
+title:  "The Summoning Spell of Eternal Return"
 date:   2018-05-14
 ---
 

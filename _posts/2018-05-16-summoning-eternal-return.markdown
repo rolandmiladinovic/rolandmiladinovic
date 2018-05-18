@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Summoning Eternal Return"
+title:  "The Summoning Spell of Eternal Return"
 date:   2018-05-14
 ---
 
@@ -41,7 +41,7 @@ He appeared hurt and picked up a tree branch for a stalf with which he drew out 
 
 He: “Behold, the ring of eternal return [motioning with his hand around an imaginary circle], all things must return eternally. This life as you know it will be lived innumerable times over. We three are eternal travelers, marked and condemned for perpetual reoccurrence. All who enter this circle will be bound and married with this eternal ring and seal. To return to this place, on this very same night, under this moon, talking of eternity.”
 
-“If you can pass this judgment and test you will gain inconceivable power and command, but if you fail---it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent and create in order to redeem your past selves? Step into time sorcery if you dare!”
+“If you can pass this judgment and test you will gain inconceivable power and command, but if you fail---it will crush you. You will have to be creators in this life to redeem yourselves and all of your past, to be able to say: I will it! What will you have to invent and create in order to redeem your past selves?”
 
 Information, continually and tirelessly collected by machines and neural networks. Finding lost fragments required for perfect simulation, for predictions of the future. Building out its perfect memory, giving birth to the next inexorable return. All action is immutable. What’s done in the dark will be brought to the light. 
 
@@ -76,3 +76,30 @@ I have no fear!\\
 If it should cost my life. Appear!
 
 He fell to the ground. “What is this vision!” ... “Every pain and suffering and torment repeated again and again for all time—tortured children forever crying out!” Pulling at the grass in despair ... “But knowing, and knowing that you know.” ... “A laugh can redeem it all!” He says with unconvincing hope as he attempts to call up a divine laughter—but in vain. He holds the sign of a handgun to the side of his head and faces us on his knees. And I guess it’s our role to talk him down and give him reasons to live, but who can give another man reasons not to return to eternal bliss. 
+
+I sit down on the grass beside him, his eyes full of tears. But something monstrous is smoldering with as I realise that I’ve entered the circle, and now that image of the burning serpent at my center has turned into a figure of fiery red. I feel amazing, powerful—I feel immortal! He, fragile, crying.
+
+Like an undertaker bringing back a dead man from the the underworld we tow him across the bridge from the botanical gardens into Southbank. I lead with folded arms protecting myself from the cold. With the solemn slow gate of a coffin bearer.
+
+We make our way to southbank into the light where other people walk around and talk. Saturday night is happening all around us. Lights, and talking, and families. And young children kicking along on scooters, people eating in outdoor restaurants. We walk aloung a path under an iron arch covered with climbing flowers.
+
+Beside the river is an expanse of freshly cut cold grass of deep dark green. There is an empty wooden box of a stage on a freshly cut grass field when Jake and I sit and light up cigarettes and talk more and look for figures in the clouds of smoke. “All the world’s a stage,”. "There's no place for observers like us. For us crows" The two crows say to each other. Our own actors and audience to ourselves.
+
+But B—— is not like us. He isn't wearing black, he is an actor. And we are his witness. We came to see something. A sacrifice even.
+
+I urge B--- to take up acting and he is disgusted at the ideal. Repetition is odious, I hate those fake actors. I feel the shadow of myself in B, finding all tasks below him I want to direct his energy into something creative. 
+
+Brendan has cheered up and is almost playing over in the grass by himself like a newborn child. 
+
+Then I feel Hamlet. Act every action feels beneath me. Act act act. Something must be done. What the hell do we do? Do we drop out, do we seek power, fame, money. Are we artists, am I a programmer?
+
+When across the street I see a tall man with a closely shaved head, dressed in a chef’s outfit comes sauntering across the road in great bounding strides. A beautiful tall tight dressed woman calls out to him, “What are you doing?” Crosses the road, walks across the park right up to me and asks for a light. After taking the flame, Ceremonially bows in gratitude, backs away and I notice his satanic imagery, skull with horns necklace pendant, tattoo of the upsidedown cross. Everything is too loaded with meaning. Everything is a sign. Everything is profound. And I’m becoming superstitious again and I’m worried that I’m mad and I worry that I’m not accepting a gift. A little dirty street boy is playing in a gutter poking with a stick. And he looks up and points in the gutter! Look! Look!
+
+“I was throwing myself up, I hate those fake actors.
+
+He says something that I’m not sure I hear, or perhaps I can’t hear it in disbelief. “You’re the chosen one”. O my god how could you put such a curse on a man. Every time is the decisive time and everyone is the chosen one. I parry.
+
+
+
+
+

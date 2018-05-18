@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "The Summoning Spell of Eternal Return"
-date:   2018-05-14
+title:  "Summoning Eternal Return"
+date:   2018-05-16
 ---
 
 Running\\
@@ -31,7 +31,7 @@ I felt on my collar\\
 Blood\\
 A spider’s bite itching
 
-I pulled myself up from the hedge still holding the little bite on my collar and walked out onto an open clearing of freshly cut grass. There, I found two friends loitering around a park table animated with talk and laughter, but my feelings were heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
+I pulled myself up from the hedge still holding the little bite on my collar and walked out onto an open clearing of freshly cut grass. There, I found two friends loitering around a park table animated with talk and laughter, but the mood was heavy and apocalyptic as the moon shone down upon the scene. I called out a greeting and was welcomed like a brother.
 
 He walked about with nervous energy, stout, regal, pacing, telling us of his premonitions of the end of the world: Heat death, zombie apocalypse, skynet, cannibal communists. We discussed mankind's destiny as if we three alone had the power to save or destroy the world. But the other doesn’t believe in the end of the world. Humankind will always find away, a miracle at the last moment; the seed of life will always rise from the ashers.
 
@@ -76,30 +76,3 @@ I have no fear!\\
 If it should cost my life. Appear!
 
 He fell to the ground. “What is this vision!” ... “Every pain and suffering and torment repeated again and again for all time—tortured children forever crying out!” Pulling at the grass in despair ... “But knowing, and knowing that you know.” ... “A laugh can redeem it all!” He says with unconvincing hope as he attempts to call up a divine laughter—but in vain. He holds the sign of a handgun to the side of his head and faces us on his knees. And I guess it’s our role to talk him down and give him reasons to live, but who can give another man reasons not to return to eternal bliss. 
-
-I sit down on the grass beside him, his eyes full of tears. But something monstrous is smoldering with as I realise that I’ve entered the circle, and now that image of the burning serpent at my center has turned into a figure of fiery red. I feel amazing, powerful—I feel immortal! He, fragile, crying.
-
-Like an undertaker bringing back a dead man from the the underworld we tow him across the bridge from the botanical gardens into Southbank. I lead with folded arms protecting myself from the cold. With the solemn slow gate of a coffin bearer.
-
-We make our way to southbank into the light where other people walk around and talk. Saturday night is happening all around us. Lights, and talking, and families. And young children kicking along on scooters, people eating in outdoor restaurants. We walk aloung a path under an iron arch covered with climbing flowers.
-
-Beside the river is an expanse of freshly cut cold grass of deep dark green. There is an empty wooden box of a stage on a freshly cut grass field when Jake and I sit and light up cigarettes and talk more and look for figures in the clouds of smoke. “All the world’s a stage,”. "There's no place for observers like us. For us crows" The two crows say to each other. Our own actors and audience to ourselves.
-
-But B—— is not like us. He isn't wearing black, he is an actor. And we are his witness. We came to see something. A sacrifice even.
-
-I urge B--- to take up acting and he is disgusted at the ideal. Repetition is odious, I hate those fake actors. I feel the shadow of myself in B, finding all tasks below him I want to direct his energy into something creative. 
-
-Brendan has cheered up and is almost playing over in the grass by himself like a newborn child. 
-
-Then I feel Hamlet. Act every action feels beneath me. Act act act. Something must be done. What the hell do we do? Do we drop out, do we seek power, fame, money. Are we artists, am I a programmer?
-
-When across the street I see a tall man with a closely shaved head, dressed in a chef’s outfit comes sauntering across the road in great bounding strides. A beautiful tall tight dressed woman calls out to him, “What are you doing?” Crosses the road, walks across the park right up to me and asks for a light. After taking the flame, Ceremonially bows in gratitude, backs away and I notice his satanic imagery, skull with horns necklace pendant, tattoo of the upsidedown cross. Everything is too loaded with meaning. Everything is a sign. Everything is profound. And I’m becoming superstitious again and I’m worried that I’m mad and I worry that I’m not accepting a gift. A little dirty street boy is playing in a gutter poking with a stick. And he looks up and points in the gutter! Look! Look!
-
-“I was throwing myself up, I hate those fake actors.
-
-He says something that I’m not sure I hear, or perhaps I can’t hear it in disbelief. “You’re the chosen one”. O my god how could you put such a curse on a man. Every time is the decisive time and everyone is the chosen one. I parry.
-
-
-
-
-
